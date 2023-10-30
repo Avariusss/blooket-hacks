@@ -1,0 +1,2 @@
+# blooket-hacks
+idk hacks
